@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on with a realbras  
 - 📫 My contacts are: gabriel.fp05@gmail.com or gabriel@realbras.com.br
-- ⚡ Fun fact: I like see dances in gerally 
+- ⚡ Fun fact: I like to see dances in gerally 
 
 <!---
 Bielx6/Bielx6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
