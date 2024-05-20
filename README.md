@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bielx6
 - 👀 I’m interested in studyng
-- 🌱 I’m currently learning english
+- 🌱 I’m currently learning english and Tecnology of information.
 - 💞️ I’m looking to collaborate on with a realbras  
 - 📫 My contacts are: gabriel.fp05@gmail.com or gabriel@realbras.com.br
 - ⚡ Fun fact: I like to see dances
